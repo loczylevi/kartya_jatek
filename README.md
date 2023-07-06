@@ -1,0 +1,1 @@
+# kartya_jatek
